@@ -6,4 +6,7 @@ https://github.com/guymonja/Jacob_Guymon_Resume/blob/main/Jacob_Guymon_Resume_09
 Here is my LinkedIn profile
 https://www.linkedin.com/in/jacob-guymon-0964b88b/
 
+Here is my business card
+https://github.com/guymonja/Jacob_Guymon_Resume/blob/main/Business%20card.jpg
+
 
