@@ -1,4 +1,4 @@
-# Jacob_Guymon_Resume
+# Jacob_Guymon
 
 Here is my Resume
 https://github.com/guymonja/Jacob_Guymon_Resume/blob/main/Jacob_Guymon_Resume_091923.pdf
